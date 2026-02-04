@@ -1,3 +1,1 @@
-\
-![d_l](https://github.com/user-attachments/assets/7736b247-52d2-4da1-9580-7502830ef824)
-![lucy](https://github.com/user-attachments/assets/837a69fc-b066-4972-b414-6e7de1aff1e5)
+[Depresión Sonora - Gasolina y Mechero (Videoclip)( - Salida.mp3](https://github.com/user-attachments/files/25079682/Depresion.Sonora.-.Gasolina.y.Mechero.Videoclip.-.Salida.mp3)
